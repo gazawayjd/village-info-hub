@@ -1,0 +1,3 @@
+- CT, HC 
+- Baptizing them 
+		- Teaching them to follow all that Jesus commanded 
